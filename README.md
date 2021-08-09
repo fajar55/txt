@@ -1,2 +1,6 @@
 # random.txt
-Gatau
+
+
+Silahkan Dipake
+
+[`@caliph71`](https://caliph71.xyz)
